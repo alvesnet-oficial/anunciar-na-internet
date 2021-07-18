@@ -34,5 +34,4 @@ Pré-requisitos:
 - landpages
 - Produção de Conteúdo (não é propaganda em video)
 - Segmentacao
-- 
 
