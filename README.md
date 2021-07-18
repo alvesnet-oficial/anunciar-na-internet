@@ -23,4 +23,12 @@ Curso: SEO
 
 ----------------------- // ----------------------
 
+Como anunciar na internet?
 
+Pré-requisitos:
+
+- Bom produto/serviço, bem dimensionado;
+- Estratégia;
+- Site/ou Loja bem adaptado;
+- Forma de contato simples e eficiente;
+- 
