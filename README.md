@@ -31,4 +31,8 @@ Pré-requisitos:
 - Estratégia;
 - Site/ou Loja bem adaptado;
 - Forma de contato simples e eficiente;
+- landpages
+- Produção de Conteúdo (não é propaganda em video)
+- Segmentacao
 - 
+
